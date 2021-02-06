@@ -10,9 +10,7 @@ w有兴趣的可以加我们leader（bushi）的QQ ~ 2604575067 ~
 
 ~~敬请期待哦~~XD
 
-
-
-<img src="D:\建模大赛\GITHUB_Associate\MCM_2021\只是馋一下你们.png" alt="只是馋一下你们" style="zoom:33%;" />
+<img src="D:\建模大赛\GITHUB_Associate\MCM_2021\只是馋一下你们.jpg" alt="只是馋一下你们" style="zoom:33%;" />
 
 我们的做示意图XD
 
